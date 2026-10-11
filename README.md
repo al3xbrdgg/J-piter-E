@@ -1,1 +1,1 @@
-# J-piter-E
+# Jupiter-E
